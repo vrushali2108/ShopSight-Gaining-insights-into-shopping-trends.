@@ -1,0 +1,1 @@
+# ShopSight-Gaining-insights-into-shopping-trends.
